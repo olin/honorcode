@@ -5,11 +5,9 @@ As a member of the Olin College community, I will strive to embody the spirit of
 **Integrity:** I will represent myself accurately and completely in my work, my words, and my actions in academic and
 in non-academic affairs.
 
-**Respect for Others:** Each member of the college community will be considerate of fellow community members and honor each individual's inherent dignity and worth.
+**Respect for Others:** I will be patient with and understanding of fellow community members, and considerate of their inherent dignity and personal property. I will care for community resources and facilities so others may effectively use them.
 
 **Passion for the Welfare of the College:** Each member of the college community will express a personal commitment to the welfare of the community through a spirit of cooperation, concern for others, and responsibility for the reputation of Olin College.
-
-**Patience and Understanding:** Each member of the college community will strive to foster harmonious relationships through empathy and mindfulness of others.
 
 **Openness to Change:** Each member of the college community will be receptive to change and will strive for innovation and improvement within the community.
 
