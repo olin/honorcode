@@ -13,4 +13,6 @@ responsibility for the reputation of Olin College.
 **Openness to Change:** I will be receptive to change, supportive of innovation, and willing to take risks for the benefit of the
 community.
 
-**Do Something:** When aware of a potential violation of the Honor Code or related policies, a member of the college community must take action in a timely manner to address the situation. While all violations are treated with utmost concern, academic and non-academic cases differ in nature and therefore often call for different courses of action. Suspected violations of integrity in academic work must be reported to the professor of the course or directly to the Honor Board. Other suspected violations must either be addressed informally to the satisfaction of all parties involved or reported to the Honor Board.
+**Do Something:** I will strive to better myself and my community and take responsibility for my own behavior. When I
+become aware of a violation of the Honor Code or an issue within the community, I will take action
+towards resolution of the situation. I expect others to do the same.
