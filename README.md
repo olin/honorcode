@@ -7,7 +7,8 @@ in non-academic affairs.
 
 **Respect for Others:** I will be patient with and understanding of fellow community members, and considerate of their inherent dignity and personal property. I will care for community resources and facilities so others may effectively use them.
 
-**Passion for the Welfare of the College:** Each member of the college community will express a personal commitment to the welfare of the community through a spirit of cooperation, concern for others, and responsibility for the reputation of Olin College.
+**Passion for the Welfare of the College:** I will be a steward for the welfare of Olin College through a spirit of cooperation, concern for others, and
+responsibility for the reputation of Olin College.
 
 **Openness to Change:** Each member of the college community will be receptive to change and will strive for innovation and improvement within the community.
 
