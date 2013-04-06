@@ -10,6 +10,7 @@ in non-academic affairs.
 **Passion for the Welfare of the College:** I will be a steward for the welfare of Olin College through a spirit of cooperation, concern for others, and
 responsibility for the reputation of Olin College.
 
-**Openness to Change:** Each member of the college community will be receptive to change and will strive for innovation and improvement within the community.
+**Openness to Change:** I will be receptive to change, supportive of innovation, and willing to take risks for the benefit of the
+community.
 
 **Do Something:** When aware of a potential violation of the Honor Code or related policies, a member of the college community must take action in a timely manner to address the situation. While all violations are treated with utmost concern, academic and non-academic cases differ in nature and therefore often call for different courses of action. Suspected violations of integrity in academic work must be reported to the professor of the course or directly to the Honor Board. Other suspected violations must either be addressed informally to the satisfaction of all parties involved or reported to the Honor Board.
