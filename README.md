@@ -2,7 +2,8 @@
 
 As a member of the Olin College community, I will strive to embody the spirit of honor and integrity as defined by the five core personal values and will take action to address any breach of that spirit.
 
-**Integrity:** Each member of the college community will accept responsibility for and represent accurately and completely oneself, one's work, and one's actions.
+**Integrity:** I will represent myself accurately and completely in my work, my words, and my actions in academic and
+in non-academic affairs.
 
 **Respect for Others:** Each member of the college community will be considerate of fellow community members and honor each individual's inherent dignity and worth.
 
